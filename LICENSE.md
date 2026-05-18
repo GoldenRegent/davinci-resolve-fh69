@@ -1,4 +1,4 @@
-# 
+# Seguro Adobe Premiere Pro para PC executor é o melhor Adobe Premiere Pro para PC executor com codificação de vídeo e normalização. Seguro, confiável e otimizado para máximo
 
 
 
